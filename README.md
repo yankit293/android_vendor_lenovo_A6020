@@ -1,0 +1,1 @@
+Vendor Blob For A6020 (LENOVO VIBE K5 PLUS)
